@@ -1,1 +1,1 @@
-Jaemin
+Jaemin Kim
